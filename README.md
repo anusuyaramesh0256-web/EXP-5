@@ -35,7 +35,7 @@ OBSERVATIONS:
 ![WhatsApp Image 2026-04-09 at 11 47 46 AM](https://github.com/user-attachments/assets/47535bd9-1257-4a06-a294-fb65b7dd5c40)
 
 REGULATION CHARACTERISTICS:
-![WhatsApp Image 2026-04-09 at 11 48 14 AM](https://github.com/user-attachments/assets/1f210965-895f-4056-b10b-d034953ea6bb)
+![WhatsApp Image 2026-04-09 at 11 47 21 AM](https://github.com/user-attachments/assets/916b5d61-7eb0-4f39-8154-34a92363e059)
 
 V-I & REGULATION CHARACTERISTICS:
 ![WhatsApp Image 2026-04-09 at 11 48 31 AM](https://github.com/user-attachments/assets/9ce4fcef-5607-4343-942a-da0f8de960f5)
